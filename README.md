@@ -37,5 +37,5 @@ Borrowers with mortgages accounted for the highest funded amount of $219.33M, in
 
 ## Connect/Links
 
-- [LinkedIn Profile](https://www.linkedin.com/in/mohamed-abbas-k/)
+- [LinkedIn Profile](https://www.linkedin.com/in/mohamed-abbas-k/) - Mohamed Abbas
 - mail: mohamedabbaskalandar@gmail.com
